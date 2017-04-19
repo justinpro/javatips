@@ -1,1 +1,1 @@
-# javatips
+# fuck off this website
